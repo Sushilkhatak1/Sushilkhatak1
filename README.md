@@ -1,0 +1,1 @@
+If you are looking to enhance your buiness than you have to work on your customer ratings. Like Me QR Scanner for Customer ratings designed for your business. Download Like me business app from google play store and for business plans visit the website https://likeme.co.in   
